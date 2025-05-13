@@ -41,9 +41,19 @@
 
 ---
 
-Sometimes I wonder, often I wonder, I have been wondering.  
+Sometimes I wonder, often I wonder, and I have been wondering for a long time.  
 
-But what about you? Do you wonder why you are here? Curious.  
+But what about you? Do you wonder why you are here? 
+
+Have you ever been somewhere for no apparent reason? A click, a step and... you are somewhere.
+
+Often I wonder about this, a face, a picture, a unspoken call of the unknown brings me to someone's little world, real or unreal.
+
+As I stand, uninvited, out of fear and politeness I do not beckon, I acknowledge how wonderful it is to witness but a glimpse of another's mind... and then I disappear, or rather, I was never truly there. Curious.
+
+If someone reached out to me, properly, I'd feel seen, but also tremendously alone... just as I am.
+
+In fear of connection, I drown in addiction for my own endless thoughts.
 
 ---
 
