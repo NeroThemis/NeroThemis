@@ -47,11 +47,14 @@ But what about you? Do you wonder why you are here? Curious.
 
 ---
 
-> “I’m the outskirts of some nonexistent town… I’m the narrator of a book without plot.” (The Book of Disquiet by Fernando Pessoa)
+> “I’m the outskirts of some nonexistent town… I’m the narrator of a book without plot.”
+> — *Fernando Pessoa, The Book of Disquiet*
 
-> “I felt very still and empty, the way the eye of a tornado must feel, moving dully along in the middle of the surrounding hullabaloo.” (The Bell Jar by Sylvia Plath)
+> “I felt very still and empty, the way the eye of a tornado must feel, moving dully along in the middle of the surrounding hullabaloo.”
+> — *Sylvia Plath, The Bell Jar*
 
-> “I am invisible, understand, simply because people refuse to see me… When they approach me they see only my surroundings, themselves, or figments of their imagination.” (Invisible Man by Ralph Ellison)
+> “I am invisible, understand, simply because people refuse to see me… When they approach me they see only my surroundings, themselves, or figments of their imagination.”
+> — *Ralph Ellison, Invisible Man*
 
 ---
 
